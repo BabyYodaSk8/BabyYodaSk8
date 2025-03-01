@@ -1,5 +1,5 @@
 - Hi, I’m @BabyYodaSk8 aka Leira 
-- I’m interested in Culinary, UX & UI Design, animals, video games, interior design, also big fan of old movies 
+- I’m very much interested in culinary, UX & UI design, animals, & video games. Also a big fan of movies & nachos :D
 - I’m currently learning UX/UI DESIGN 
 - Hmu --> leiralimks@gmail.com 
 - Fun fact: I own a sausage 
